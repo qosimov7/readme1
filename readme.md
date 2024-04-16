@@ -12,3 +12,8 @@
 ## Аз хама обновлении калони ECMA Script  соли 2015 шудаги аст
 ![Alt text](./q6.png)
 
+
+
+# SALON ODJOSMCLSC,;S,CS
+## DFDFFSFSAFKA;SF,ASDFSAFS
+
